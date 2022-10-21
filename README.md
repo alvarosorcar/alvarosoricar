@@ -3,4 +3,4 @@
 > Now I fly above as the eagle lord
 > As I stare below, you drown in blood
 > As I soar through stars forged into swords
-> Gates open wide, as a star I shine... - Inquisition
+> Gates open wide, as a star I shine... - Inquisition - Black Mass foor a Mass Grave
