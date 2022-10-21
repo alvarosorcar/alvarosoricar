@@ -4,4 +4,4 @@
 > As I stare below, you drown in blood
 > As I soar through stars forged into swords
 > Gates open wide, as a star I shine... - Inquisition - Black Mass for a Mass Grave  
-[Enlace en línea](iesluisvives.es)
+[Página del IES Luis Vives](iesluisvives.es)
